@@ -1,0 +1,1 @@
+# -auto-doctor-ai-thailand
